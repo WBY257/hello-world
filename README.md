@@ -2,6 +2,6 @@
 
 Hola Peeps,
 
-I'm down wit github,bitch.
+I'm down wit github,bitches.
 
 ~WBY
